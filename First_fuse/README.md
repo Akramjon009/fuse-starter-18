@@ -1,0 +1,6 @@
+![image](https://github.com/MrUmmataliyev/First_fuse/assets/145908814/28288dbd-a320-4e79-87fb-e6e7f45f59bc)
+![image](https://github.com/MrUmmataliyev/First_fuse/assets/145908814/d354c3e5-a298-4b17-bf01-906cb8053d0a)
+![image](https://github.com/MrUmmataliyev/First_fuse/assets/145908814/e38bd2d3-2b1c-4567-a41d-ec3ef5b3cc49)
+![image](https://github.com/MrUmmataliyev/First_fuse/assets/145908814/9564d83b-d454-4f9b-8553-bc70c657e354)
+![image](https://github.com/MrUmmataliyev/First_fuse/assets/145908814/63ed4279-4dbb-4e1c-be3a-25e597846022)
+![image](https://github.com/MrUmmataliyev/First_fuse/assets/145908814/60154dea-28f6-4111-a3e7-03135e1671d3)
